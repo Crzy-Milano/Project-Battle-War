@@ -1,2 +1,2 @@
-# Project-Battle-World-Roblox
+# Project-Battle-World
 Upcoming Realistic War Game on Roblox!
